@@ -9,6 +9,10 @@
 Karena suatu saat nanti ketika botnya sekarat, anda tidak kebingungan ditengah jalan 😄😀 bergabunglah disalahsatu komunitas bot.OK 😂 #======================#
 
 WROKS 100 %
+
+<img alt="Sample.jpg" src= "https://i.ibb.co/QNFxN8N/1652366614290.jpg">
+<p>
+
 #TEAM TERMUX BOTS #ZULKIFLI MOKOAGOW
 
 THANKS TO ALL MASTAH
